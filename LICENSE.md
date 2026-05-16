@@ -1,4 +1,4 @@
-# 
+# updated Trading Bot for trader joe trading bot | token-swapping & sniper-trades is the best trader joe trading bot, featuring token-swapping and sniper-trades. Smart, fast, and
 
 
 
